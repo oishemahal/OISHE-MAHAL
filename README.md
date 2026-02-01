@@ -1,4 +1,4 @@
-🎉 OISHE MAHAL – Hotel & Resort 🎉
+🎉 OISHE MAHAL – H o t e l  &  R e s o r t 🎉
 Your wedding. Our arrangement. 👰🤵
 Your dream, our reality. 👑✨
 From royal weddings to grand celebrations, corporate meetings, confidence sessions, and private parties, we craft every detail with creativity, elegance, and comfort 🏨
