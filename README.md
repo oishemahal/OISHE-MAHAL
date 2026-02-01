@@ -1,2 +1,25 @@
-# OISHE MAHAL
-🏩Every stay feels special 🛏️Equipped rooms 🐟Rooftop aquarium &amp; dining 🎬Cineplex 🎤Auditorium &amp; open stage with professional setup☕Coffee shop 🍽️ Restaurant 🚐Ttransport with tour guide 💪Gym &amp; massage chairs 🎱Pool 🛍️Mini Mart 🅿️Parking with driver lounge
+🎉 OISHE MAHAL – Hotel & Resort 🎉
+Your wedding. Our arrangement. 👰🤵
+Your dream, our reality. 👑✨
+From royal weddings to grand celebrations, corporate meetings, confidence sessions, and private parties, we craft every detail with creativity, elegance, and comfort 🏨
+Every stay feels special at OISHE MAHAL 💖 🏩
+★ Experience Comfort, Luxury & Professional Excellence:
+★ Rooms with all essentials: fridge, Smart TV, oven, coffee maker, iron, and more 🛏️
+★ Cineplex & pool table 🎬🎱
+★ Massage chairs 💆‍♂️
+★ Mini mart 🛒
+★ Free large parking with driver lounge 🚗
+★ Exclusive VIP parking 🚘✨
+★ Ultra high-speed WiFi 🌐
+★ High-capacity power backup ⚡
+★ Geysers & heaters 🔥
+★ Air conditioning everywhere ❄️
+Filtered water at every tap & special bottled water 💧
+★ Rooftop aquarium & dining 🌊🌇 – freshly caught fish cooked right there for you, or enjoy any dish of your choice 🐟🍽️
+★ Outdoor seating & garden areas 🌿🪑
+★ Coffeeshop & restaurant ☕🍽️
+★ Auditorium & open stage with camera, lights, professional setup 🎤🎥💡
+★ Foreign dogs for security, pest control, and daily maintenance 🐕
+★ Dedicated team for cleanliness & hygiene, every day 🧹✨
+🏩 Where celebrations, comfort, and creativity meet professional perfection and total care 👑
+☎️ Hotline: 09638 242 056
